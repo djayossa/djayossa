@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @djayossa
+- 👀 I’m interested in ...technology and music
+- 🌱 I’m currently learning ...computer science degree
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...ayandawait@gmail.com
+- 😄 Pronouns: ...He
+- ⚡ Fun fact: ...i'm a DJ and a Technician
