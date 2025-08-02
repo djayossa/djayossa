@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @djayossa
+- 👋 Hi, I’m @AyandaLinda
 - 👀 I’m interested in ...technology and music
 - 🌱 I’m currently learning ...computer science degree
 - 💞️ I’m looking to collaborate on ...
